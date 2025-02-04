@@ -1,0 +1,2 @@
+# Stratocasterpedia
+Progetto
